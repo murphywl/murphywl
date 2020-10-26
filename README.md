@@ -1,4 +1,4 @@
-## Hi, I'm Andrey - aka [murphywl][website] 👋
+## Hi, I'm Andrey | [murphywl][website] 👋
 
 - 🔭 I’m currently working as Frontend Developer!
 - 🌱 I’m currently learning everything 🤣

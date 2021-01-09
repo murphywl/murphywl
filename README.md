@@ -1,10 +1,4 @@
-## Hi, I'm Andrey | [murphywl][website] 👋
-
-- 🔭 I’m currently working as Frontend Developer!
-- 🌱 I’m currently learning everything 🤣
-- 👯 I’m looking to collaborate with other content creators
-- 🥅 Contribute more to Open Source projects
-- ⚡ Fun fact: I love to read and play guitar
+## Hi, I'm murphywl | [ᴛʜᴇ ꜱᴡᴏʀᴅʟᴇꜱꜱ ꜱᴀᴍᴜʀᴀɪ][website] 👋
 
 ---
 

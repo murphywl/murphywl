@@ -1,4 +1,4 @@
-## Hi, I'm murphywl | [ᴛʜᴇ ꜱᴡᴏʀᴅʟᴇꜱꜱ ꜱᴀᴍᴜʀᴀɪ][website] 👋
+## @murphywl | [ᴛʜᴇ ꜱᴡᴏʀᴅʟᴇꜱꜱ ꜱᴀᴍᴜʀᴀɪ][website] 
 
 ---
 
